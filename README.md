@@ -1,1 +1,1 @@
-# Soma-HW07
+Still- tried my best on these ones!!
